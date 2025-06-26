@@ -32,7 +32,7 @@ I’m currently looking for:
 ## 📫 Contact Me
 
  
-- 🔗 LinkedIn: [linkedin.com/in/yourprofile](https://linkedin.com/in/yourprofile)  
+- 🔗 LinkedIn: [linkedin.com/in/Roni Singh]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/roni-singh-2ba405254/))  
 
 
 ---
